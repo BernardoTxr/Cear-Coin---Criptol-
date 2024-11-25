@@ -1,1 +1,0 @@
-# Cear-Coin---Criptol-
